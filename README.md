@@ -6,7 +6,7 @@
 <br/>
 HIII!! to whoever may be reading this the names Casey your local Perpetua yume/selfshipper!!
 <br/><br/>
-you've probably found yourself over here from ponytown, I tend to be pretty anxious & shy when it comes to intracting but please know I'm friendly and would love to chat ( I tend to do other things on the side while I play so just send a whisper to grab my attention if you need ^v^ ) also feel free to cuddle too I absoutely don't mind!!
+you've probably found yourself over here from ponytown, I'm pretty shy & anxious when reaching out myself but I promise I'm friendly and would absoutely love to chat best way to reach me is via whisper as I tend to be off tab / doing smth while playing so I may miss a normal message! ^v^
 <br/><br/>
 also feel free to leave something for my strawpage!! or follow me on twt!!
 <br/>
