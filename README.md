@@ -8,7 +8,7 @@ HIII!! to whoever may be reading this the names Casey your local Perpetua yume/s
 <br/><br/>
 you've probably found yourself over here from ponytown, I'm pretty shy & anxious when reaching out myself but I promise I'm friendly and would absoutely love to chat best way to reach me is via whisper as I tend to be off tab / doing smth while playing so I may miss a normal message! ^v^ (and please feel free to sit by me / cuddle me if you wish I don't bite either!)
 <br/><br/>
-also feel free to leave something for me on my strawpage https://arachnidpair.straw.page/ or follow me on twt https://x.com/ArachnidPair/ 
+also feel free to leave something for me on my strawpage https://perpetuaspouse.straw.page/ or follow me on twt https://x.com/ArachnidPair/ 
 <br/>
 <br/>
 <p align="center">
