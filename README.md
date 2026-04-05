@@ -2,11 +2,11 @@
 <br/>
 <br/>
 <br/>
-HIII!! to whoever may be reading this the names Casey!!
+HIII!!
 <br/><br/>
-you've probably found yourself over here from ponytown, I'm pretty shy & anxious when reaching out myself but I promise I'm friendly and would absoutely love to chat best way to reach me is via whisper as I tend to be off tab / doing smth while playing so I may miss a normal message! ^v^ (and please feel free to sit by me / cuddle me if you wish I don't bite either!)
+you've probably found yourself over here from ponytown, hi!! i'm a system you can happyily call me by either host name [ Casey or Andrew ] or if another alter is fronting their name!! I promise we don't bite [at least most of us] though sometimes we tend to AFK so sorry if it seems like we're ignoring you!!
 <br/><br/>
-also feel free to leave something for me on my strawpage https://arachnidrain.straw.page/
+also feel free to leave something for me on my strawpage https://arachnidrain.straw.page/ or our atabook!! https://arachnidrain.atabook.org/
 <br/>
 <br/>
 <p align="center">
