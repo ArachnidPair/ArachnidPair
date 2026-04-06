@@ -7,6 +7,7 @@ we have non sharing S/O's which include Infected & Lampert [ regretvator ] & Edg
 <p align="center">
 yes we do have a 007n7 fictive yes he is a host no he is not his source, please do not treat him as if he is, we don't like forsaken
 <br/><br/>
+<p align="center">
 also feel free to leave something for us on our strawpage https://arachnidrain.straw.page/ or our atabook!! https://arachnidrain.atabook.org/
 <br/>
 <br/>
