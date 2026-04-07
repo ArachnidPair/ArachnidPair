@@ -8,7 +8,7 @@ https://pluralkit.xyz/f/wrveng
 <br/>
 you've probably found yourself over here from ponytown, hi!! we're a system you can happyily call us by either host name [ Casey, Andrew or Seven ] or if another alter is fronting their name!! I promise we don't bite [at least most of us] though sometimes we tend to AFK so sorry if it seems like we're ignoring you please wisper to make sure we can see you!! feel free to hug!!
 <p align="center">
-yes we do have a 007n7 fictive yes he is a host no he is not his source, please do not treat him as if he is, we don't like forsaken
+yes we do have forsaken fictive's yes one is a host no they are not their source, please do not treat any of them as if they are, we don't like/support forsaken
 <br/><br/>
 <p align="center">
 also feel free to leave something for us on our strawpage https://arachnidrain.straw.page/ or our atabook!! https://arachnidrain.atabook.org/
