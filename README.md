@@ -2,6 +2,8 @@
 <br/>
 <br/>
 <p align="center">
+current fronter
+https://pluralkit.xyz/f/wrveng
 <br/>
 you've probably found yourself over here from ponytown, hi!! i'm a system you can happyily call us by either host name [ Casey, Andrew or Seven ] or if another alter is fronting their name!! I promise we don't bite [at least most of us] though sometimes we tend to AFK so sorry if it seems like we're ignoring you please wisper to make sure we can see you!! feel free to hug!!
 <p align="center">
