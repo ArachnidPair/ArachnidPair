@@ -4,7 +4,7 @@
 <p align="center">
 <br/>
 <br/>
-you've probably found yourself over here from ponytown, hi!! we're a system you can happyily call us by either host name [ Casey, Andrew or Seven ] or if another alter is fronting their name!! I promise we don't bite [at least most of us] though sometimes we tend to AFK so sorry if it seems like we're ignoring you please wisper to make sure we can see you!! feel free to hug!!
+you've probably found yourself over here from ponytown, hi!! we're a system I promise we don't bite [at least most of us] though sometimes we tend to AFK so sorry if it seems like we're ignoring you please wisper to make sure we can see you!! feel free to hug!!
 <p align="center">
 yes we do have forsaken fictive's no they are not their source, please do not treat any of them as if they are, we don't like/support forsaken
 <br/><br/>
